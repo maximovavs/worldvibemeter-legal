@@ -1,0 +1,1 @@
+# worldvibemeter-legal
